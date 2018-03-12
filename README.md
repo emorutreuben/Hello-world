@@ -1,2 +1,4 @@
 # Hello-world
-bob-namukali
+FDDG
+core values
+objectives
